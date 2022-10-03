@@ -35,6 +35,14 @@ Incompetent Russian Forces
 
 Memes
 =====
+NAFO
+----
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_4zVmXgAA-b_g?format=jpg&name=small">
+   </p>
+
 Putin
 -----
 .. raw:: html
@@ -63,6 +71,12 @@ Russian Forces
 
   <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_2jHCXkAAo2l5?format=jpg&name=900x900">
+   </p>
+   
+.. raw:: html
+
+  <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_3wjJWIAAIDnm?format=jpg&name=small">
    </p>
 
 Vatnik propaganda
