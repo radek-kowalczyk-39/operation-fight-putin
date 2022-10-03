@@ -75,4 +75,16 @@ Ryan Dawson from ancreport
   —- https://t.me/ancreport/5863, Ryan Dawson, Sep 28 at 18:47
   
 **NOTE:** Ryan Dawson always making fun of the Holocaust.
+   
+|
+
+  A state attacking pipelines is an act of war. Clueless Joe, Lloyd Austin and Antony Blinken have no business being in the postions they are in. The three of them couldn't figure out how to open a paper bag.
+
+  Heads need to roll.
+  This November, if we make it that far, vote out the woke. Democrats started WWI and WWII. Don't let them start WWIII.
+
+  **Choke the woke.**
   
+  —- https://t.me/ancreport/5856, Ryan Dawson, Sep 28 at 08:31
+  
+**NOTE:** Ryan Dawson calling for violence against the democracts since they are the woke ones.
