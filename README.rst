@@ -67,3 +67,11 @@ Ryan Dawson from ancreport
   —- https://t.me/ancreport/5871, Ryan Dawson, Sep 29 at 09:15
   
 **NOTE:** By 🔔, Ryan Dawson means the Jews.
+
+
+  It is impossible that the pipelines are leaking gas. They had wooden doors.
+  
+  —- https://t.me/ancreport/5863, Ryan Dawson, Sep 28 at 18:47
+  
+**NOTE:** Ryan Dawson always making fun of the Holocaust.
+  
