@@ -43,6 +43,12 @@ NAFO
      <img src="https://pbs.twimg.com/media/Fd_4zVmXgAA-b_g?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_6d85XEAEzfbw?format=jpg&name=small">
+   </p>
+
 Putin
 -----
 .. raw:: html
@@ -58,6 +64,13 @@ Igor Konashenkov
    <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_10eNXEAEj6Q0?format=jpg&name=small">
    </p>
+   
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_5VJ3XkAIZMIc?format=jpg&name=small">
+   </p>
+
 
 Russian Forces
 --------------
