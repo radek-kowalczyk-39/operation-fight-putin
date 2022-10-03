@@ -27,10 +27,21 @@ News
 
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">In case anyone wants to see some of this <a href="https://t.co/tyhrQZpOLG">https://t.co/tyhrQZpOLG</a><br><br>Be warned, graphic POW and KIA vids</p>&mdash; ndru (@ndrukelly) <a href="https://twitter.com/ndrukelly/status/1576236631157112832?ref_src=twsrc%5Etfw">October 1, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
+Incompetent Russian Forces
+==========================
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Russian infantry allegedly attempting to cross Dnipro river, 09/2022 colorized. <a href="https://t.co/lX5RtJo8If">pic.twitter.com/lX5RtJo8If</a></p>&mdash; Special Kherson Cat 🐈🇺🇦 (@bayraktar_1love) <a href="https://twitter.com/bayraktar_1love/status/1575819932901658624?ref_src=twsrc%5Etfw">September 30, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
 Memes
 =====
 Putin
 -----
+.. raw:: html
+
+  <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_2ZmuXEAAI0C6?format=jpg&name=small">
+   </p>
 
 Igor Konashenkov
 ----------------
@@ -46,6 +57,12 @@ Russian Forces
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_1k_WXgAAF9X1?format=jpg&name=small">
+   </p>
+   
+.. raw:: html
+
+  <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_2jHCXkAAo2l5?format=jpg&name=900x900">
    </p>
 
 Vatnik propaganda
