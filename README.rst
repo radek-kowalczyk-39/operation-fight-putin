@@ -98,6 +98,12 @@ Putin
      <img src="https://pbs.twimg.com/media/FeAIvaqWQAEWOXq?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeARKf5WIAMvjns?format=jpg&name=small">
+   </p>
+
 Lavrov
 ------
 .. raw:: html
@@ -150,6 +156,13 @@ Russian Forces
 
 .. garbage end
 
+.. coffin
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeAU1U4XEAAVehP?format=jpg&name=small">
+   </p>
+
 .. raw:: html
 
   <p align="center">
@@ -160,6 +173,12 @@ Russian Forces
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/Fd__TR0XkAEWjZq?format=jpg&name=small">
+   </p>
+   
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeAUZFGWIAAn_uz?format=jpg&name=900x900">
    </p>
 
 Vatnik propaganda
