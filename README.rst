@@ -52,7 +52,12 @@ Vatnik propaganda
 =================
 Andrei Martyanov aka smoothiex12
 --------------------------------
+Social media
+^^^^^^^^^^^^
+- http://smoothiex12.blogspot.com
 
+Hateful messages
+^^^^^^^^^^^^^^^^
   You see, they still want to defend the **avatar of a country**, known in Russia as country **404** and its **Nazi puppet regime in Kiev**. So, I want to stress again--war, and SMO is war, albeit a very peculiar one, is never about re-educating local civilians only. No, war, quoting our good ol' friend Carl von Clausewitz, is about "compelling the enemy to do our will." In order to do so, you destroy its armies and that means **physical annihilation of enemy's war material economy** and, yes, **extermination of those military personnel** who still want to fight. 
 
   —- http://smoothiex12.blogspot.com/2022/09/thats-way-you-do-itc.html, Andrei Martyanov, Sunday, September 4, 2022
@@ -61,7 +66,15 @@ Andrei Martyanov aka smoothiex12
 
 Ryan Dawson from ancreport
 --------------------------
+Social media
+^^^^^^^^^^^^
+- **Official site:** https://www.ancreport.com
+- https://t.me/s/ancreport
+- https://ryandawson.substack.com/
+- https://vk.com/rydawson
 
+Hateful messages
+^^^^^^^^^^^^^^^^
   I can not stress this enough. They 🔔 will get Europe destroyed. No matter what is left of Russia and America, Europe loses everything. You have got to stop supporting Ukraine. You gain nothing and risk your existence.
   
   —- https://t.me/ancreport/5871, Ryan Dawson, Sep 29 at 09:15
