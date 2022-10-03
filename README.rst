@@ -68,6 +68,7 @@ Ryan Dawson from ancreport
   
 **NOTE:** By 🔔, Ryan Dawson means the Jews.
 
+|
 
   It is impossible that the pipelines are leaking gas. They had wooden doors.
   
