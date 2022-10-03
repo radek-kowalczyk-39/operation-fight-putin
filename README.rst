@@ -89,6 +89,14 @@ Putin
      <img src="https://pbs.twimg.com/media/FeAIvaqWQAEWOXq?format=jpg&name=small">
    </p>
 
+Lavrov
+------
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_9FCUWIAc1k3E?format=jpg&name=small">
+   </p>
+
 Igor Konashenkov
 ----------------
 .. raw:: html
