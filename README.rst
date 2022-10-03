@@ -71,11 +71,20 @@ NAFO
 
 Putin
 -----
+.. Putin meeting start
 .. raw:: html
 
   <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_2ZmuXEAAI0C6?format=jpg&name=small">
    </p>
+
+.. raw:: html
+
+  <p align="center">
+     <img src="https://pbs.twimg.com/media/FeABCf1XkAIUVUw?format=jpg&name=small">
+   </p>
+
+.. Putin meeting end
 
 .. raw:: html
 
