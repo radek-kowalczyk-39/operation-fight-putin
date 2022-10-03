@@ -38,7 +38,7 @@ Brave Ukrainian Forces
 .. raw:: html
 
    <p align="center">
-     <img src="https://twitter.com/JalamelaK/status/1576259574512103424">
+     <img src="https://pbs.twimg.com/media/Fd__QtGXgAIy4rN?format=jpg&name=900x900">
    </p>
    
 Incompetent Russian Forces
@@ -110,23 +110,27 @@ Russian Forces
    <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_1k_WXgAAF9X1?format=jpg&name=small">
    </p>
-   
+
+.. garbage start
+
 .. raw:: html
 
   <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_2jHCXkAAo2l5?format=jpg&name=900x900">
    </p>
-   
-.. raw:: html
 
-  <p align="center">
-     <img src="https://pbs.twimg.com/media/Fd_3wjJWIAAIDnm?format=jpg&name=small">
-   </p>
-   
 .. raw:: html
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FeAFKInXgAEVdlA?format=jpg&name=small">
+   </p>
+
+.. garbage end
+
+.. raw:: html
+
+  <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_3wjJWIAAIDnm?format=jpg&name=small">
    </p>
    
 .. raw:: html
