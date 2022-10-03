@@ -27,6 +27,20 @@ News
 
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">In case anyone wants to see some of this <a href="https://t.co/tyhrQZpOLG">https://t.co/tyhrQZpOLG</a><br><br>Be warned, graphic POW and KIA vids</p>&mdash; ndru (@ndrukelly) <a href="https://twitter.com/ndrukelly/status/1576236631157112832?ref_src=twsrc%5Etfw">October 1, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
+Brave Ukrainian Forces
+======================
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_wQ7CXkAE331Y?format=jpg&name=small">
+   </p>
+   
+.. raw:: html
+
+   <p align="center">
+     <img src="https://twitter.com/JalamelaK/status/1576259574512103424">
+   </p>
+   
 Incompetent Russian Forces
 ==========================
 .. raw:: html
@@ -49,12 +63,30 @@ NAFO
      <img src="https://pbs.twimg.com/media/Fd_6d85XEAEzfbw?format=jpg&name=small">
    </p>
 
+.. raw:: html
+   
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_72SnXgAEYA3S?format=jpg&name=small">
+   </p>
+
 Putin
 -----
 .. raw:: html
 
   <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_2ZmuXEAAI0C6?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeAIblCXgAYTyy7?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeAIvaqWQAEWOXq?format=jpg&name=small">
    </p>
 
 Igor Konashenkov
@@ -70,7 +102,6 @@ Igor Konashenkov
    <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_5VJ3XkAIZMIc?format=jpg&name=small">
    </p>
-
 
 Russian Forces
 --------------
@@ -90,6 +121,18 @@ Russian Forces
 
   <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_3wjJWIAAIDnm?format=jpg&name=small">
+   </p>
+   
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeAFKInXgAEVdlA?format=jpg&name=small">
+   </p>
+   
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd__TR0XkAEWjZq?format=jpg&name=small">
    </p>
 
 Vatnik propaganda
