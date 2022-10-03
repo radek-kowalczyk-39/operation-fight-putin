@@ -142,6 +142,12 @@ Russian Forces
      <img src="https://pbs.twimg.com/media/FeAFKInXgAEVdlA?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeACfexXwAMENz5?format=jpg&name=small">
+   </p>
+
 .. garbage end
 
 .. raw:: html
