@@ -101,3 +101,51 @@ Hateful messages
   —- https://t.me/ancreport/5856, Ryan Dawson, Sep 28 at 08:31
   
 **NOTE:** Ryan Dawson calling for violence against the democracts since they are the woke ones.
+
+|
+
+  Having a black History month is self segregating. Im just gonna take a wild guess that it wasnt blacks who created it. I wonder 🔔who did.
+
+  It is infantilizing and cannot make blacks feel good. History is History its not a racial pissing contest.
+
+  —- https://t.me/ancreport/5851, Ryan Dawson, Sep 28 at 03:50
+
+**NOTE:** Ryan Dawson again with his wild antisemitic conspiracies. He sees Jews everywhere even in his cornflakes.
+
+|
+
+The next 4 messages are pure antisemitism which is a regular occurence with Ryan Dawson. He tries to be funny by connecting the wildest and craziest conspiracies involving Israel to the explosion of the Nord Stream pipelines:
+
+  NATO ships were in the area at the time of the pipeline explosion. Google USS Liberty then SS Patria.
+
+  —- https://t.me/ancreport/5842, Ryan Dawson, Sep 27 at 23:40
+
+|
+
+  Blown up pipeline? Has anyone checked Bornholm island for rooftop israeli dance parties.
+  
+  —- https://t.me/ancreport/5841, Ryan Dawson, Sep 27 at 23:34
+
+|
+
+  Israel admits they blew up the pipeline but stated they thought it was an Egyptian ship.
+
+  —- https://t.me/ancreport/5839, Ryan Dawson, Sep 27 at 23:26
+
+|
+
+  Unwet passport found on a tiny raft above the blown up pipelines.
+
+  A note read death to NATO death to Israel. Signed, Iran
+  
+  —- https://t.me/ancreport/5838, Ryan Dawson, Sep 27 at 23:25
+
+Putin shilling
+^^^^^^^^^^^^^^
+
+  We've got a secret relationship between intelligence agencies and big business, in written, social, and televised media to censor effective dissent. There is no Free Press. The US is a facist super power.
+
+  Russia threatens this monopoly
+  
+  —- https://t.me/ancreport/5850, Ryan Dawson, Sep 28 at 03:36
+  
