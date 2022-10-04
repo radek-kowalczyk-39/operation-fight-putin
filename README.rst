@@ -11,7 +11,7 @@ Recommended sites
 =================
 - https://t.me/s/spook_boys: Documenting Russian casualties, deaths and POWs to cut through Russian propaganda.
 
-  On `Oct 1 at 22:41 <https://t.me/spook_boys/2531>`_, they posted: "4 videos now of Russians being eaten by animals. 2 pig videos, 1 cat video and 1 group of stray dogs in a video."
+  On `1 Oct 2022 at 22:41 <https://t.me/spook_boys/2531>`_, they posted: "4 videos now of Russians being eaten by animals. 2 pig videos, 1 cat video and 1 group of stray dogs in a video."
 
 - https://t.me/s/ftdjjjj: same kind of material as https://t.me/s/spook_boys
 - https://twitter.com/ZelenskyyUa: President of Ukraine
