@@ -11,7 +11,7 @@ Recommended sites
 =================
 - https://t.me/s/spook_boys: Documenting Russian casualties, deaths and POWs to cut through Russian propaganda.
 
-  On `1 Oct 2022 at 22:41 <https://t.me/spook_boys/2531>`_, they posted: "4 videos now of Russians being eaten by animals. 2 pig videos, 1 cat video and 1 group of stray dogs in a video."
+  On `1 Oct 2022 at 22:41 <https://t.me/spook_boys/2531>`_, they wrote: "4 videos now of Russians being eaten by animals. 2 pig videos, 1 cat video and 1 group of stray dogs in a video."
   
   `Video <https://t.me/ftdjjjj/2591>`_ of cat and dog eating Russian soldier posted by `ftdjjjj <https://t.me/s/ftdjjjj>`_
 
