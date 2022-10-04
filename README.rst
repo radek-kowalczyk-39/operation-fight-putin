@@ -13,7 +13,10 @@ Recommended sites
 
   On `1 Oct 2022 at 22:41 <https://t.me/spook_boys/2531>`_, they posted: "4 videos now of Russians being eaten by animals. 2 pig videos, 1 cat video and 1 group of stray dogs in a video."
 
-- https://t.me/s/ftdjjjj: same kind of material as https://t.me/s/spook_boys
+- https://t.me/s/ftdjjjj: same kind of material as `spook_boys <https://t.me/s/spook_boys>`_
+- `Мертвые русские 200 <https://t.me/+d3GpH2mOvC5kZTcy>`_: recommended by `ftdjjjj <https://t.me/ftdjjjj/2592>`_
+
+  `ftdjjjj <https://t.me/ftdjjjj/2592>`_: "Here you will see: The most brutal footage of the war, interrogations 18+, dead Russians, exclusives and all the horrors of war"
 - https://twitter.com/ZelenskyyUa: President of Ukraine
 - https://twitter.com/DefenceU: Official page of the Ministry of Defense of Ukraine 🇺🇦
 
