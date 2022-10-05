@@ -1,7 +1,12 @@
 =====================
 Operation Fight Putin
 =====================
+.. raw:: html
 
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeNJ_S7XEAEJnax?format=png&name=small">
+   </p>
+   
 .. contents:: 
    :depth: 4 
    :local: 
