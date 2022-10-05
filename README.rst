@@ -130,6 +130,12 @@ Putin
      <img src="https://pbs.twimg.com/media/FeAZ0pkWQAAkZgl?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeINUjlXgAAD3Oa?format=jpg&name=small">
+   </p>
+
 Lavrov
 ------
 .. raw:: html
@@ -205,6 +211,12 @@ Russian Forces
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FeAUZFGWIAAn_uz?format=jpg&name=900x900">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeQr2xGXEAIh99h?format=jpg&name=900x900">
    </p>
 
 Vatnik propaganda
