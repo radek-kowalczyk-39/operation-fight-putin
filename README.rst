@@ -33,6 +33,10 @@ News
 ------------------------------------------------------------------------------
 .. raw:: html
 
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">🔴The Kerch bridge between Crimea and mainland Russia has been partially destroyed in an apparent Ukrainian strike. <br><br>Follow the latest updates on our Ukraine liveblog ⬇️</p>&mdash; The Telegraph (@Telegraph) <a href="https://twitter.com/Telegraph/status/1578633915652358144?ref_src=twsrc%5Etfw">October 8, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+.. raw:: html
+
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">The guided missile cruiser Moskva and the Kerch Bridge – two notorious symbols of russian power in Ukrainian Crimea – have gone down. <br>What’s next in line, russkies?</p>&mdash; Defense of Ukraine (@DefenceU) <a href="https://twitter.com/DefenceU/status/1578651480294592513?ref_src=twsrc%5Etfw">October 8, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 2022-10-01: Ukraine won Lyman back!
