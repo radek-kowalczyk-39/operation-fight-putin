@@ -255,14 +255,14 @@ Russian Forces
      <img src="https://pbs.twimg.com/media/FeQr2xGXEAIh99h?format=jpg&name=900x900">
    </p>
 
+Russia
+------
 .. raw:: html
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FejgavAWAAAaUS8?format=jpg&name=small">
    </p>
-
-Russia
-------
+   
 .. raw:: html
 
    <p align="center">
