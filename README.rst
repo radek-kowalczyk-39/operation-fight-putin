@@ -41,6 +41,12 @@ News
 
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">The guided missile cruiser Moskva and the Kerch Bridge – two notorious symbols of russian power in Ukrainian Crimea – have gone down. <br>What’s next in line, russkies?</p>&mdash; Defense of Ukraine (@DefenceU) <a href="https://twitter.com/DefenceU/status/1578651480294592513?ref_src=twsrc%5Etfw">October 8, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
+|
+
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Kerch Bridge on fire!<br>Your defence is terrified, na na na na na na <a href="https://t.co/WRp2P3zwmd">pic.twitter.com/WRp2P3zwmd</a></p>&mdash; Saint Javelin (@saintjavelin) <a href="https://twitter.com/saintjavelin/status/1578728315044892672?ref_src=twsrc%5Etfw">October 8, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
 2022-10-01: Ukraine won Lyman back!
 -----------------------------------
 .. raw:: html
