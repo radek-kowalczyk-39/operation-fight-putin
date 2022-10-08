@@ -101,6 +101,18 @@ NAFO
      <img src="https://pbs.twimg.com/media/Fd_72SnXgAEYA3S?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FejizJeWIAIFJaA?format=jpg&name=900x900">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FekEK6LXgAAJbul?format=jpg&name=small">
+   </p>
+
 Putin
 -----
 .. Putin meeting start
@@ -146,6 +158,12 @@ Putin
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FeINUjlXgAAD3Oa?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FejgkyiX0AAX6Rf?format=jpg&name=900x900">
    </p>
 
 Lavrov
@@ -229,6 +247,12 @@ Russian Forces
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FeQr2xGXEAIh99h?format=jpg&name=900x900">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FejgavAWAAAaUS8?format=jpg&name=small">
    </p>
 
 Vatnik propaganda
