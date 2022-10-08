@@ -178,6 +178,12 @@ Putin
      <img src="https://pbs.twimg.com/media/Fejs7myWQAEOd7M?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeiXUz1XgAAAgyh?format=jpg&name=360x360">
+   </p>
+
 Lavrov
 ------
 .. raw:: html
