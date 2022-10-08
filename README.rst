@@ -119,6 +119,12 @@ NAFO
      <img src="https://pbs.twimg.com/media/FekEK6LXgAAJbul?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeiXUzzWAAA806F?format=jpg&name=small">
+   </p>
+
 Putin
 -----
 .. Putin meeting start
@@ -178,10 +184,16 @@ Putin
      <img src="https://pbs.twimg.com/media/Fejs7myWQAEOd7M?format=jpg&name=small">
    </p>
 
+.. Putin small
 .. raw:: html
-
    <p align="center">
      <img src="https://pbs.twimg.com/media/FeiXUz1XgAAAgyh?format=jpg&name=360x360">
+   </p>
+
+.. Putin with boobs
+.. raw:: html
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeBOoCrUoAANLzu?format=jpg&name=small">
    </p>
 
 Lavrov
@@ -267,6 +279,12 @@ Russian Forces
      <img src="https://pbs.twimg.com/media/FeQr2xGXEAIh99h?format=jpg&name=900x900">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fd_0RbpXwAA9lXh?format=jpg&name=small">
+   </p>
+
 Russia
 ------
 .. raw:: html
@@ -281,8 +299,20 @@ Russia
      <img src="https://pbs.twimg.com/media/Fej2yHCXwAA1ELH?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FePC_9EWIAEHgoy?format=jpg&name=small">
+   </p>
+
 Vatnik propaganda
 =================
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FeMtxf0XEAAv8XQ?format=jpg&name=small">
+   </p>
+
 Andrei Martyanov aka smoothiex12
 --------------------------------
 Social media
