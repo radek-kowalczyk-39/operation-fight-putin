@@ -190,6 +190,12 @@ Putin
      <img src="https://img-9gag-fun.9cache.com/photo/a2Kzne9_460swp.webp">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://preview.redd.it/yztwr085n8p91.jpg?width=960&crop=smart&auto=webp&s=316a84e720b325ef1809b7a0876b327823a8e917">
+   </p>
+
 .. Putin small
 .. raw:: html
    <p align="center">
