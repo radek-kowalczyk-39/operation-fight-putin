@@ -187,7 +187,7 @@ Putin
 .. raw:: html
 
    <p align="center">
-     <img src="https://pbs.twimg.com/media/FekWCPcXoAYTKxJ?format=jpg&name=360x360">
+     <img src="https://img-9gag-fun.9cache.com/photo/a2Kzne9_460swp.webp">
    </p>
 
 .. Putin small
