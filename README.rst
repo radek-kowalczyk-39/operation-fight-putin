@@ -196,6 +196,12 @@ Putin
      <img src="https://preview.redd.it/yztwr085n8p91.jpg?width=960&crop=smart&auto=webp&s=316a84e720b325ef1809b7a0876b327823a8e917">
    </p>
 
+.. raw:: html
+
+  <p align="center">
+     <img src="https://pbs.twimg.com/media/Feiukc7WYAA68Wp?format=jpg&name=small">
+   </p>
+
 .. Putin small
 .. raw:: html
    <p align="center">
