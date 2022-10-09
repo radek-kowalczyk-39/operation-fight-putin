@@ -183,6 +183,12 @@ Putin
    <p align="center">
      <img src="https://pbs.twimg.com/media/Fejs7myWQAEOd7M?format=jpg&name=small">
    </p>
+   
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FekWCPcXoAYTKxJ?format=jpg&name=360x360">
+   </p>
 
 .. Putin small
 .. raw:: html
