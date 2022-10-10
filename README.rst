@@ -398,13 +398,13 @@ This is the Guardian article he is talking in the beginning of the `video <https
 
 You will notice that the article doesn't mention anything about the pedophiles being Jewish but that doesn't stop antisemitic Ryan to lie that they are Jews -- Ryan Dawson is showing that he is a lousy investigative reporter and you should question all his past investigative reporting he has done: 
 
-  They don't mention that these Russians, these Italians are all Jews. They were. Why not? 
+  They don't mention that these Russians and these Italians are all Jews. But they were. Why not? 
   
   —- Ryan Dawson, `A TRIP DOWN RAPEY LANE, PART 1 OF INDEFINITE <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_ @ 2:57, bitchute, August 18th, 2019
 
 Ryan Dawson didn't make a second part like he said he was going to do. He was supposed to make these kinds of "investigative" reporting about Jews every day because he said that he had enough material to do it for ever (hence the title of his antisemitic video: *PART 1 OF INDEFINITE*).
 
-WTF @ `5:05 <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_
+WTF @ `5:05 <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_:
 
 .. raw:: html
 
