@@ -16,7 +16,7 @@ Recommended sites
 =================
 - https://t.me/s/spook_boys: Documenting Russian casualties, deaths and POWs to cut through Russian propaganda.
 
-  On `1 Oct 2022 at 22:41 <https://t.me/spook_boys/2531>`_, they wrote: "4 videos now of Russians being eaten by animals. 2 pig videos, 1 cat video and 1 group of stray dogs in a video."
+  On `1 Oct 2022 <https://t.me/spook_boys/2531>`_, they wrote: "4 videos now of Russians being eaten by animals. 2 pig videos, 1 cat video and 1 group of stray dogs in a video."
   
   `Video <https://t.me/ftdjjjj/2591>`_ of cat and dog eating Russian soldier posted by `ftdjjjj <https://t.me/s/ftdjjjj>`_
 
@@ -378,7 +378,7 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   I guarantee if there was a Russian crime ring, or Chinese human trafficking ring, or Columbian drug ring, we could notice it. But a **Jewish pedophile** ring Woaaaah cool it with the antisemitism. That doesn't even dignify a response!
 
-  —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5 at 23:25
+  —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5
 
 **NOTE:** you will notice that Ryan Dawson is associating being Jewish with sickness, just like what was found in Nazi propaganda:
 
@@ -390,7 +390,7 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   I can not stress this enough. They 🔔 will get Europe destroyed. No matter what is left of Russia and America, Europe loses everything. You have got to stop supporting Ukraine. You gain nothing and risk your existence.
   
-  —- https://t.me/ancreport/5871, Ryan Dawson, Sep 29 at 09:15
+  —- https://t.me/ancreport/5871, Ryan Dawson, Sep 29
   
 **NOTE:** By 🔔, Ryan Dawson means the Jews.
 
@@ -398,7 +398,7 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   It is impossible that the pipelines are leaking gas. They had wooden doors.
   
-  —- https://t.me/ancreport/5863, Ryan Dawson, Sep 28 at 18:47
+  —- https://t.me/ancreport/5863, Ryan Dawson, Sep 28
   
 **NOTE:** Ryan Dawson always making fun of the Holocaust.
    
@@ -411,7 +411,7 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   **Choke the woke.**
   
-  —- https://t.me/ancreport/5856, Ryan Dawson, Sep 28 at 08:31
+  —- https://t.me/ancreport/5856, Ryan Dawson, Sep 28
   
 **NOTE:** Ryan Dawson calling for violence against the democracts since they are the woke ones.
 
@@ -421,7 +421,7 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   It is infantilizing and cannot make blacks feel good. History is History its not a racial pissing contest.
 
-  —- https://t.me/ancreport/5851, Ryan Dawson, Sep 28 at 03:50
+  —- https://t.me/ancreport/5851, Ryan Dawson, Sep 28
 
 **NOTE:** Ryan Dawson again with his wild antisemitic conspiracies. He sees Jews everywhere even in his cornflakes.
 
@@ -431,19 +431,19 @@ The next 4 messages are pure antisemitism which is a regular occurence with Ryan
 
   NATO ships were in the area at the time of the pipeline explosion. Google USS Liberty then SS Patria.
 
-  —- https://t.me/ancreport/5842, Ryan Dawson, Sep 27 at 23:40
+  —- https://t.me/ancreport/5842, Ryan Dawson, Sep 27
 
 |
 
   Blown up pipeline? Has anyone checked Bornholm island for rooftop israeli dance parties.
   
-  —- https://t.me/ancreport/5841, Ryan Dawson, Sep 27 at 23:34
+  —- https://t.me/ancreport/5841, Ryan Dawson, Sep 27
 
 |
 
   Israel admits they blew up the pipeline but stated they thought it was an Egyptian ship.
 
-  —- https://t.me/ancreport/5839, Ryan Dawson, Sep 27 at 23:26
+  —- https://t.me/ancreport/5839, Ryan Dawson, Sep 27
 
 |
 
@@ -451,7 +451,7 @@ The next 4 messages are pure antisemitism which is a regular occurence with Ryan
 
   A note read death to NATO death to Israel. Signed, Iran
   
-  —- https://t.me/ancreport/5838, Ryan Dawson, Sep 27 at 23:25
+  —- https://t.me/ancreport/5838, Ryan Dawson, Sep 27
 
 Putin shilling
 ^^^^^^^^^^^^^^
@@ -460,5 +460,5 @@ Putin shilling
 
   Russia threatens this monopoly
   
-  —- https://t.me/ancreport/5850, Ryan Dawson, Sep 28 at 03:36
+  —- https://t.me/ancreport/5850, Ryan Dawson, Sep 28
   
