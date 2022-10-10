@@ -362,7 +362,9 @@ Ryan Dawson from ancreport
 .. raw:: html
 
    <p align="center">
+     <a href="https://www.bitchute.com/video/Vk8BXiVVkhU/">
      <img src="https://raw.githubusercontent.com/radek-kowalczyk-39/operation-fight-putin/main/pics/ugly_dawson.png">
+     </a>
    </p>
 
 .. raw:: html
@@ -382,6 +384,7 @@ Social media
 
 - Ryan Dawson interviewed Andrei Martyanov which you can see @ `rumble.com <https://rumble.com/v18n5bp-ryan-interviews-andrei-martyanov-about-the-ukraine-war.html>`_.
 - Ryan Dawson interviewed the sex offender `Scott Ritter <https://en.wikipedia.org/wiki/Scott_Ritter#Arrests_and_conviction_for_sex_offences>`_ which you can see @ `bitchute.com <https://www.bitchute.com/video/ltl9o7Evzdt1/>`_.
+- Two antisemites arguing about optics: Ryan Dawson vs `Jon Minadeo <https://www.adl.org/resources/backgrounders/goyim-defense-league>`_ ("Handsome Truth") @ `GDL HIGH SCHOOL DROP OUT THINKS HITLER OPTICS WORKS <https://www.bitchute.com/video/te3QulEMkacU/>`_ [from bitchute]
 
 
 Hateful messages
