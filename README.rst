@@ -383,9 +383,11 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5 at 23:25
 
-**NOTE:** you will notice that Ryan Dawson is associating being Jewish with sickness, just like what was found in `Nazi propaganda <https://perspectives.ushmm.org/item/propaganda-poster-jews-are-lice-they-cause-typhus>`_:
+**NOTE:** you will notice that Ryan Dawson is associating being Jewish with sickness, just like what was found in Nazi propaganda:
 
   Nazi propaganda often portrayed people persecuted by the regime as vermin, parasites, or diseases.
+  
+  —- `Propaganda Poster: “Jews Are Lice: They Cause Typhus” <https://perspectives.ushmm.org/item/propaganda-poster-jews-are-lice-they-cause-typhus>`_, United States Holocaust Memorial Museum
 
 |
 
