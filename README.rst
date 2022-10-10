@@ -365,7 +365,7 @@ Social media
 
 Hateful messages
 ^^^^^^^^^^^^^^^^
-Your daily dose of antisemitism by Ryan Dawson where he likes to remind his antisemitic followers that he is not your typical Nazi because he is very careful not to say all the Jews -- he never put the spotlight on the Russians, they are free of criticism in his worldview:
+Your daily dose of antisemitism by Ryan Dawson where he likes to remind his antisemitic followers that he is not your typical Nazi because he is very careful not to say all the Jews:
 
   Wait youre asking to notice reality?
   What Walsh doesnt understand is, only **an untouchable group** could get away with this transgender BS. And it's because they untouchable and unnoticeable, even to Walsh, that they can continue indefinitely.
@@ -380,11 +380,37 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5
 
-**NOTE:** you will notice that Ryan Dawson is associating being Jewish with sickness, just like what was found in Nazi propaganda:
+**NOTE 1:** you will notice that Ryan Dawson is associating being Jewish with sickness, just like what was found in Nazi propaganda:
 
   Nazi propaganda often portrayed people persecuted by the regime as vermin, parasites, or diseases.
   
   —- `Propaganda Poster: “Jews Are Lice: They Cause Typhus” <https://perspectives.ushmm.org/item/propaganda-poster-jews-are-lice-they-cause-typhus>`_, United States Holocaust Memorial Museum
+
+**NOTE 2:** he never put the spotlight on Russians unless they are Jews, just like in this old `video <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_ where he is really unhinged by saying at the beginning without any shred of evidence that pedophiles from Russia and Italy that sold lots of child-pornography videos were Jews:
+
+  Trying to hide the **Jewishness** of criminals causes more not less antisemitism.
+  this report was motivated by YouTube erasing my videos on Israeli crimes. Well you want the gloves off? OK then. You get what you ask for.
+  join me EVERYDAY for another case of **yids** raping kids.
+  
+  —- Ryan Dawson, `A TRIP DOWN RAPEY LANE, PART 1 OF INDEFINITE - Video description <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_, bitchute, August 18th, 2019
+
+This is the Guardian article he is talking in the beginning of the `video <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_ @ 1:51: `Paedophile videos stun Italians by Philip Willan <https://www.theguardian.com/world/2000/sep/29/philipwillan>`_, Fri 29 Sep 2000
+
+You will notice that the article doesn't mention anything about the pedophiles being Jewish but that doesn't stop antisemitic Ryan to lie that they are Jews -- Ryan Dawson is showing that he is a lousy investigative reporter and you should question all his past investigative reporting he has done: 
+
+  They don't mention that these Russians, these Italians are all Jews. They were. Why not? 
+  
+  —- Ryan Dawson, `A TRIP DOWN RAPEY LANE, PART 1 OF INDEFINITE <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_ @ 2:57, bitchute, August 18th, 2019
+
+Ryan Dawson didn't make a second part like he said he was going to do. He was supposed to make these kinds of "investigative" reporting about Jews every day because he said that he had enough material to do it for ever (hence the title of his antisemitic video: *PART 1 OF INDEFINITE*).
+
+WTF @ `5:05 <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://raw.githubusercontent.com/radek-kowalczyk-39/operation-fight-putin/main/pics/unhinged_dawson.png">
+   </p>
 
 |
 
