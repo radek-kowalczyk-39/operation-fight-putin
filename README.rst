@@ -26,6 +26,7 @@ Recommended sites
   `ftdjjjj <https://t.me/ftdjjjj/2592>`_: "Here you will see: The most brutal footage of the war, interrogations 18+, dead Russians, exclusives and all the horrors of war"
 - https://twitter.com/ZelenskyyUa: President of Ukraine
 - https://twitter.com/DefenceU: Official page of the Ministry of Defense of Ukraine 🇺🇦
+- https://myrotvorets.center: Peacemaker site of the Ukrainian government. "Center for Research of Signs of Crimes against the National Security of Ukraine"
 
 News
 ====
@@ -79,8 +80,14 @@ Brave Ukrainian Forces
      <img src="https://pbs.twimg.com/media/Fd__QtGXgAIy4rN?format=jpg&name=900x900">
    </p>
    
-Incompetent Russian Forces
-==========================
+Terrorist Russian Forces
+========================
+.. raw:: html
+
+   <p align="center">
+     <img src="https://psb4ukr.natocdn.net/2022/02/EPmLWt-W4AAby0e.jpg">
+   </p>
+   
 .. raw:: html
 
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Russian infantry allegedly attempting to cross Dnipro river, 09/2022 colorized. <a href="https://t.co/lX5RtJo8If">pic.twitter.com/lX5RtJo8If</a></p>&mdash; Special Kherson Cat 🐈🇺🇦 (@bayraktar_1love) <a href="https://twitter.com/bayraktar_1love/status/1575819932901658624?ref_src=twsrc%5Etfw">September 30, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
@@ -330,6 +337,8 @@ Vatnik propaganda
    <p align="center">
      <img src="https://pbs.twimg.com/media/FeMtxf0XEAAv8XQ?format=jpg&name=small">
    </p>
+
+These Vatnik propagandists should not be surprised if one day they see their names in the famous Ukrainian `list <https://myrotvorets.center/>`_.
 
 Andrei Martyanov aka smoothiex12
 --------------------------------
