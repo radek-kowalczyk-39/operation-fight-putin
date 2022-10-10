@@ -427,6 +427,8 @@ WTF @ `5:05 <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_:
      <img src="https://raw.githubusercontent.com/radek-kowalczyk-39/operation-fight-putin/main/pics/unhinged_dawson.png">
    </p>
 
+Japan's `Office for Child Safety Services <https://www.ncchd.go.jp/en/hospital/about/section/child-safety/>`_ should remove Ryan Dawson's children so they can live in a safe environment because that guy is mentally unstable. I won't be surprised if he beats his Korean wife.
+
 |
 
   I can not stress this enough. They 🔔 will get Europe destroyed. No matter what is left of Russia and America, Europe loses everything. You have got to stop supporting Ukraine. You gain nothing and risk your existence.
