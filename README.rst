@@ -372,10 +372,10 @@ Social media
 - https://ryandawson.substack.com/
 - https://vk.com/rydawson
 
-**NOTE:** 
+**NOTES:** 
 
-  - Ryan Dawson interviewed Andrei Martyanov which you can see @ `rumble.com <https://rumble.com/v18n5bp-ryan-interviews-andrei-martyanov-about-the-ukraine-war.html>`_.
-  - Ryan Dawson interviewed the sex offender `Scott Ritter <https://en.wikipedia.org/wiki/Scott_Ritter#Arrests_and_conviction_for_sex_offences>`_ which you can see @ `bitchute.com <https://www.bitchute.com/video/ltl9o7Evzdt1/>`_.
+- Ryan Dawson interviewed Andrei Martyanov which you can see @ `rumble.com <https://rumble.com/v18n5bp-ryan-interviews-andrei-martyanov-about-the-ukraine-war.html>`_.
+- Ryan Dawson interviewed the sex offender `Scott Ritter <https://en.wikipedia.org/wiki/Scott_Ritter#Arrests_and_conviction_for_sex_offences>`_ which you can see @ `bitchute.com <https://www.bitchute.com/video/ltl9o7Evzdt1/>`_.
 
 
 Hateful messages
