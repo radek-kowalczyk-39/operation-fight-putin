@@ -368,6 +368,27 @@ Social media
 
 Hateful messages
 ^^^^^^^^^^^^^^^^
+Your daily dose of antisemitism by Ryan Dawson where he likes to remind his antisemitic followers that he is not your typical Nazi because he is very careful to say not all the Jews but some of them are bad -- he never put the spotlight on the Russians, they are free of criticism in his worldview:
+
+  Wait youre asking to notice reality?
+  What Walsh doesnt understand is, only **an untouchable group** could get away with this transgender BS. And it's because they untouchable and unnoticeable, even to Walsh, that they can continue indefinitely.
+
+  Notice how Walsh conflates what the man said to the classic shift of "the Jews".
+
+  No not "The" Jews, " The ones pushing the degeneracy. **Being Jewish just sheilds them from criticism.** It's why so many Jewish gangs and organized crime can reach such prominence. You have to pretend **these crooks** are invisible.
+
+  Ignoring Jewish crime allows **the sickess** among them to thrive.
+
+  I guarantee if there was a Russian crime ring, or Chinese human trafficking ring, or Columbian drug ring, we could notice it. But a **Jewish pedophile** ring Woaaaah cool it with the antisemitism. That doesn't even dignify a response!
+
+  —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5 at 23:25
+
+**NOTE:** you will notice that Ryan Dawson is associating being Jewish with sickness, just like what was found in `Nazi propaganda <https://perspectives.ushmm.org/item/propaganda-poster-jews-are-lice-they-cause-typhus>`_:
+
+  Nazi propaganda often portrayed people persecuted by the regime as vermin, parasites, or diseases.
+
+|
+
   I can not stress this enough. They 🔔 will get Europe destroyed. No matter what is left of Russia and America, Europe loses everything. You have got to stop supporting Ukraine. You gain nothing and risk your existence.
   
   —- https://t.me/ancreport/5871, Ryan Dawson, Sep 29 at 09:15
