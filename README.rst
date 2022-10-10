@@ -393,7 +393,7 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   I guarantee if there was a Russian crime ring, or Chinese human trafficking ring, or Columbian drug ring, we could notice it. But a **Jewish pedophile** ring Woaaaah cool it with the antisemitism. That doesn't even dignify a response!
 
-  —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5
+  —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5 2002
 
 **NOTE 1:** you will notice that Ryan Dawson is associating being Jewish with sickness, just like what was found in Nazi propaganda:
 
@@ -433,7 +433,7 @@ Japan's `Office for Child Safety Services <https://www.ncchd.go.jp/en/hospital/a
 
   I can not stress this enough. They 🔔 will get Europe destroyed. No matter what is left of Russia and America, Europe loses everything. You have got to stop supporting Ukraine. You gain nothing and risk your existence.
   
-  —- https://t.me/ancreport/5871, Ryan Dawson, Sep 29
+  —- https://t.me/ancreport/5871, Ryan Dawson, Sep 29 2002
   
 **NOTE:** By 🔔, Ryan Dawson means the Jews.
 
@@ -441,7 +441,7 @@ Japan's `Office for Child Safety Services <https://www.ncchd.go.jp/en/hospital/a
 
   It is impossible that the pipelines are leaking gas. They had wooden doors.
   
-  —- https://t.me/ancreport/5863, Ryan Dawson, Sep 28
+  —- https://t.me/ancreport/5863, Ryan Dawson, Sep 28 2002
   
 **NOTE:** Ryan Dawson always making fun of the Holocaust.
    
@@ -454,7 +454,7 @@ Japan's `Office for Child Safety Services <https://www.ncchd.go.jp/en/hospital/a
 
   **Choke the woke.**
   
-  —- https://t.me/ancreport/5856, Ryan Dawson, Sep 28
+  —- https://t.me/ancreport/5856, Ryan Dawson, Sep 28 2002
   
 **NOTE:** Ryan Dawson calling for violence against the democracts since they are the woke ones.
 
@@ -464,7 +464,7 @@ Japan's `Office for Child Safety Services <https://www.ncchd.go.jp/en/hospital/a
 
   It is infantilizing and cannot make blacks feel good. History is History its not a racial pissing contest.
 
-  —- https://t.me/ancreport/5851, Ryan Dawson, Sep 28
+  —- https://t.me/ancreport/5851, Ryan Dawson, Sep 28 2002
 
 **NOTE:** Ryan Dawson again with his wild antisemitic conspiracies. He sees Jews everywhere even in his cornflakes.
 
@@ -474,19 +474,19 @@ The next 4 messages are pure antisemitism which is a regular occurence with Ryan
 
   NATO ships were in the area at the time of the pipeline explosion. Google USS Liberty then SS Patria.
 
-  —- https://t.me/ancreport/5842, Ryan Dawson, Sep 27
+  —- https://t.me/ancreport/5842, Ryan Dawson, Sep 27 2002
 
 |
 
   Blown up pipeline? Has anyone checked Bornholm island for rooftop israeli dance parties.
   
-  —- https://t.me/ancreport/5841, Ryan Dawson, Sep 27
+  —- https://t.me/ancreport/5841, Ryan Dawson, Sep 27 2002
 
 |
 
   Israel admits they blew up the pipeline but stated they thought it was an Egyptian ship.
 
-  —- https://t.me/ancreport/5839, Ryan Dawson, Sep 27
+  —- https://t.me/ancreport/5839, Ryan Dawson, Sep 27 2002
 
 |
 
@@ -494,7 +494,7 @@ The next 4 messages are pure antisemitism which is a regular occurence with Ryan
 
   A note read death to NATO death to Israel. Signed, Iran
   
-  —- https://t.me/ancreport/5838, Ryan Dawson, Sep 27
+  —- https://t.me/ancreport/5838, Ryan Dawson, Sep 27 2002
 
 Putin shilling
 ^^^^^^^^^^^^^^
@@ -503,5 +503,5 @@ Putin shilling
 
   Russia threatens this monopoly
   
-  —- https://t.me/ancreport/5850, Ryan Dawson, Sep 28
+  —- https://t.me/ancreport/5850, Ryan Dawson, Sep 28 2002
   
