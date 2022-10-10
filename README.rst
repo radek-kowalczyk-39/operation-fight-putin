@@ -365,7 +365,11 @@ Ryan Dawson from ancreport
      <img src="https://raw.githubusercontent.com/radek-kowalczyk-39/operation-fight-putin/main/pics/ugly_dawson.png">
    </p>
 
-This is what happens when you live like a slob and you never wash your dirty pillow case.
+.. raw:: html
+
+   <p align="center">
+     This is what happens when you live like a slob and you never wash your dirty pillow case.
+   </p>
 
 Social media
 ^^^^^^^^^^^^
