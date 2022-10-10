@@ -354,6 +354,9 @@ Social media
 - https://ryandawson.substack.com/
 - https://vk.com/rydawson
 
+**NOTE:** Ryan Dawson interviewed Andrei Martyanov which you can see @ `rumble.com <https://rumble.com/v18n5bp-ryan-interviews-andrei-martyanov-about-the-ukraine-war.html>`_.
+
+
 Hateful messages
 ^^^^^^^^^^^^^^^^
   I can not stress this enough. They 🔔 will get Europe destroyed. No matter what is left of Russia and America, Europe loses everything. You have got to stop supporting Ukraine. You gain nothing and risk your existence.
