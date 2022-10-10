@@ -417,7 +417,7 @@ You will notice that the article doesn't mention anything about the pedophiles b
   
   —- Ryan Dawson, `A TRIP DOWN RAPEY LANE, PART 1 OF INDEFINITE <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_ @ 2:57, bitchute, August 18th, 2019
 
-Ryan Dawson didn't make a second part like he said he was going to do. He was supposed to make these kinds of "investigative" reporting about Jews every day because he said that he had enough material to do it for ever (hence the title of his antisemitic video: *PART 1 OF INDEFINITE*).
+Ryan Dawson didn't make a second part like he said he was going to do. He was supposed to make these kinds of "investigative" reporting about Jews every day because he said that he had enough material to do it for a long time (hence the title of his antisemitic video: *PART 1 OF INDEFINITE*).
 
 WTF @ `5:05 <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_:
 
