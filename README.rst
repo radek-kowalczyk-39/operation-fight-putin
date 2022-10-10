@@ -338,7 +338,7 @@ Vatnik propaganda
      <img src="https://pbs.twimg.com/media/FeMtxf0XEAAv8XQ?format=jpg&name=small">
    </p>
 
-These Vatnik propagandists should not be surprised if one day they see their names in the famous Ukrainian `list <https://myrotvorets.center/>`_.
+These Vatnik propagandists should not be surprised if one day they see their name in the famous Ukrainian `list <https://myrotvorets.center/>`_.
 
 Andrei Martyanov aka smoothiex12
 --------------------------------
