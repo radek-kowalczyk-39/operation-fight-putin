@@ -368,7 +368,7 @@ Social media
 
 Hateful messages
 ^^^^^^^^^^^^^^^^
-Your daily dose of antisemitism by Ryan Dawson where he likes to remind his antisemitic followers that he is not your typical Nazi because he is very careful to say not all the Jews but some of them are bad -- he never put the spotlight on the Russians, they are free of criticism in his worldview:
+Your daily dose of antisemitism by Ryan Dawson where he likes to remind his antisemitic followers that he is not your typical Nazi because he is very careful not to say all the Jews -- he never put the spotlight on the Russians, they are free of criticism in his worldview:
 
   Wait youre asking to notice reality?
   What Walsh doesnt understand is, only **an untouchable group** could get away with this transgender BS. And it's because they untouchable and unnoticeable, even to Walsh, that they can continue indefinitely.
