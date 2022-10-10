@@ -21,9 +21,6 @@ Recommended sites
   `Video <https://t.me/ftdjjjj/2591>`_ of cat and dog eating Russian soldier posted by `ftdjjjj <https://t.me/s/ftdjjjj>`_
 
 - https://t.me/s/ftdjjjj: same kind of material as `spook_boys <https://t.me/s/spook_boys>`_
-- `Мертвые русские 200 <https://t.me/+d3GpH2mOvC5kZTcy>`_: recommended by `ftdjjjj <https://t.me/ftdjjjj/2592>`_
-
-  `ftdjjjj <https://t.me/ftdjjjj/2592>`_: "Here you will see: The most brutal footage of the war, interrogations 18+, dead Russians, exclusives and all the horrors of war"
 - https://twitter.com/ZelenskyyUa: President of Ukraine
 - https://twitter.com/DefenceU: Official page of the Ministry of Defense of Ukraine 🇺🇦
 - https://myrotvorets.center: Peacemaker site of the Ukrainian government. "Center for Research of Signs of Crimes against the National Security of Ukraine"
