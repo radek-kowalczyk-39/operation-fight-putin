@@ -353,6 +353,12 @@ Hateful messages
 
 Ryan Dawson from ancreport
 --------------------------
+.. raw:: html
+
+   <p align="center">
+     <img src="https://raw.githubusercontent.com/radek-kowalczyk-39/operation-fight-putin/main/pics/ugly_dawson.png">
+   </p>
+
 Social media
 ^^^^^^^^^^^^
 - **Official site:** https://www.ancreport.com
@@ -396,7 +402,7 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
 This is the Guardian article he is talking about in the beginning of the `video <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_ @ 1:51: `Paedophile videos stun Italians by Philip Willan <https://www.theguardian.com/world/2000/sep/29/philipwillan>`_, Fri 29 Sep 2000
 
-You will notice that the article doesn't mention anything about the pedophiles being Jewish but that doesn't stop antisemitic Ryan to lie that they are Jews -- Ryan Dawson is showing that he is a lousy investigative reporter and you should question all his past investigative reporting he has done: 
+You will notice that the article doesn't mention anything about the pedophiles being Jewish but that doesn't stop antisemitic Ryan to lie that they are Jews -- Ryan Dawson is showing that he is a lousy investigative reporter and you should question all his past and future investigative reporting he has done: 
 
   They don't mention that these Russians and these Italians are all Jews. But they were. Why not? 
   
