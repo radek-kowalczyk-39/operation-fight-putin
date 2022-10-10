@@ -339,6 +339,12 @@ These Vatnik propagandists should not be surprised if one day they see their nam
 
 Andrei Martyanov aka smoothiex12
 --------------------------------
+.. raw:: html
+
+   <p align="center">
+     <img src="https://i.ytimg.com/vi/BxZMhCtYN2k/maxresdefault.jpg">
+   </p>
+
 Social media
 ^^^^^^^^^^^^
 - http://smoothiex12.blogspot.com
