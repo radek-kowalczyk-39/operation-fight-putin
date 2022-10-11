@@ -386,6 +386,7 @@ Social media
 - Ryan Dawson interviewed the sex offender `Scott Ritter <https://en.wikipedia.org/wiki/Scott_Ritter#Arrests_and_conviction_for_sex_offences>`_ which you can see @ `bitchute.com <https://www.bitchute.com/video/ltl9o7Evzdt1/>`_.
 - Two antisemites arguing about optics: Ryan Dawson vs `Jon Minadeo <https://www.adl.org/resources/backgrounders/goyim-defense-league>`_ ("Handsome Truth") @ `GDL HIGH SCHOOL DROP OUT THINKS HITLER OPTICS WORKS <https://www.bitchute.com/video/te3QulEMkacU/>`_ [from bitchute]
 
+  Another source for the stupid debate @ `odysee.com <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?src=embed>`_.
 
 Hateful messages
 ^^^^^^^^^^^^^^^^
