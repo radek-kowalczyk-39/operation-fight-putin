@@ -391,8 +391,12 @@ Social media
     **Ryan Dawson:** The only systemic racism I see in the United States is towards white.
     —- `@ 29:53 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=1793>`_
     
+    |
+    
     **Ryan Dawson:** The war is on against Whites.
     —- `@ 30:34 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=1834>`_
+    
+    |
     
     **Ryan Dawson:** Are you FED?
     —- `@ 01:19:07 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4747>`_
@@ -403,14 +407,20 @@ Social media
     **Ryan Dawson:** I was wondering if you are getting paid or you are stupid naturally.
     —- `@ 01:19:10 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4750>`_
     
+    |
+    
     **Jon Minadeo:** I am a high school dropout retard.
     —- `@ 01:21:07 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4867>`_
+    
+    |
     
     **Ryan Dawson:** Are you a Sandy Hook denier?
     —- `@ 01:21:27 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4887>`_
     
     **Jon Minadeo:** I am a Holocaust denier ... and a Sandy Hook Nose denier. I don't believe that shit either.
     —- `@ 01:21:29 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4889>`_
+    
+    |
     
     **Ryan Dawson:** States need to leave.
     —- `@ 01:29:06 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=5346>`_
