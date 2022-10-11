@@ -384,7 +384,7 @@ Social media
 
 - Ryan Dawson interviewed Andrei Martyanov which you can see @ `rumble.com <https://rumble.com/v18n5bp-ryan-interviews-andrei-martyanov-about-the-ukraine-war.html>`_.
 - Ryan Dawson interviewed the sex offender `Scott Ritter <https://en.wikipedia.org/wiki/Scott_Ritter#Arrests_and_conviction_for_sex_offences>`_ which you can see @ `bitchute.com <https://www.bitchute.com/video/ltl9o7Evzdt1/>`_.
-- Two antisemites arguing about optics: Ryan Dawson vs `Jon Minadeo <https://www.adl.org/resources/backgrounders/goyim-defense-league>`_ ("Handsome Truth") @ `GDL HIGH SCHOOL DROP OUT THINKS HITLER OPTICS WORKS <https://www.bitchute.com/video/te3QulEMkacU/>`_ [from bitchute]
+- Two antisemites arguing about Nazi optics: Ryan Dawson vs `Jon Minadeo <https://www.adl.org/resources/backgrounders/goyim-defense-league>`_ ("Handsome Truth") @ `GDL HIGH SCHOOL DROP OUT THINKS HITLER OPTICS WORKS <https://www.bitchute.com/video/te3QulEMkacU/>`_ [from bitchute]
 
   Another source for this stupid debate can be found @ `odysee.com <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?src=embed>`_.
 
