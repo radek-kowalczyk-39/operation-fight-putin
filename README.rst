@@ -393,6 +393,15 @@ Social media
     
     **Ryan Dawson:** The war is on against Whites.
     —- `@ 30:34 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=1834>`_
+    
+    **Ryan Dawson:** Are you FED?
+    —- `@ 01:19:07 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4747>`_
+    
+    **Jon Minadeo:** No. Why would I be a FED?
+    —- `@ 01:19:08 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4748>`_
+    
+    **Ryan Dawson:** I was wondering if you are getting paid or you are stupid naturally.
+    —- `@ 01:19:10 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4750>`_
 
 Hateful messages
 ^^^^^^^^^^^^^^^^
