@@ -402,6 +402,15 @@ Social media
     
     **Ryan Dawson:** I was wondering if you are getting paid or you are stupid naturally.
     —- `@ 01:19:10 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4750>`_
+    
+    **Jon Minadeo:** I am a high school dropout retard.
+    —- `@ 01:21:07 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4867>`_
+    
+    **Ryan Dawson:** Are you a Sandy Hook denier?
+    —- `@ 01:21:27 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4887>`_
+    
+    **Jon Minadeo:** I am a Holocaust denier.
+    —- `@ 01:21:29 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4889>`_
 
 Hateful messages
 ^^^^^^^^^^^^^^^^
