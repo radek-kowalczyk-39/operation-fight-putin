@@ -409,7 +409,7 @@ Social media
     **Ryan Dawson:** Are you a Sandy Hook denier?
     —- `@ 01:21:27 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4887>`_
     
-    **Jon Minadeo:** I am a Holocaust denier.
+    **Jon Minadeo:** I am a Holocaust denier ... and a Sandy Hook Nose denier. I don't believe that shit either.
     —- `@ 01:21:29 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4889>`_
 
 Hateful messages
