@@ -446,7 +446,7 @@ Your daily dose of antisemitism by Ryan Dawson where he likes to remind his anti
 
   I guarantee if there was a Russian crime ring, or Chinese human trafficking ring, or Columbian drug ring, we could notice it. But a **Jewish pedophile** ring Woaaaah cool it with the antisemitism. That doesn't even dignify a response!
 
-  —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5 2002
+  —- https://t.me/ancreport/5989, Ryan Dawson, Oct 5 2022
 
 **NOTE 1:** you will notice that Ryan Dawson is associating being Jewish with sickness, just like what was found in Nazi propaganda:
 
