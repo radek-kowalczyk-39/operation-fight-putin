@@ -388,10 +388,10 @@ Social media
 
   Another source for this stupid debate can be found @ `odysee.com <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?src=embed>`_.
 
-    Ryan Dawson: The only systemic racism I see in the United States is towards white.
+    **Ryan Dawson:** The only systemic racism I see in the United States is towards white.
     —- `@ 29:53 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=1793>`_
     
-    Ryan Dawson: The war is on against Whites.
+    **Ryan Dawson:** The war is on against Whites.
     —- `@ 30:34 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=1834>`_
 
 Hateful messages
