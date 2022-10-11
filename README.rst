@@ -411,6 +411,15 @@ Social media
     
     **Jon Minadeo:** I am a Holocaust denier ... and a Sandy Hook Nose denier. I don't believe that shit either.
     —- `@ 01:21:29 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=4889>`_
+    
+    **Ryan Dawson:** States need to leave.
+    —- `@ 01:29:06 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=5346>`_
+    
+    **Jon Minadeo:** Well, Jews need to leave first.
+    —- `@ 01:29:09 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=5349>`_
+    
+    **Ryan Dawson:** the awful [*can't hear well what he says*] ones do. Yeah.
+    —- `@ 01:29:13 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?t=5353>`_
 
 Hateful messages
 ^^^^^^^^^^^^^^^^
