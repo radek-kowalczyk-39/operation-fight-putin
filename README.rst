@@ -388,6 +388,8 @@ Social media
 
   Another source for this stupid debate can be found @ `odysee.com <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?src=embed>`_.
 
+  `@ 29:53 <https://odysee.com/@Handsome_Truth:4/158th-GTV:c?src=embed>>`_ -> Ryan Dawson: The only systemic racism I see in the United States is towards white.
+
 Hateful messages
 ^^^^^^^^^^^^^^^^
 Your daily dose of antisemitism by Ryan Dawson where he likes to remind his antisemitic followers that he is not your typical Nazi because he is very careful not to say all the Jews:
