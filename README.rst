@@ -480,7 +480,7 @@ WTF @ `5:05 <https://www.bitchute.com/video/wbx8g9WhEu2E/>`_:
      <img src="https://raw.githubusercontent.com/radek-kowalczyk-39/operation-fight-putin/main/pics/unhinged_dawson.png">
    </p>
 
-Japan's `Office for Child Safety Services <https://www.ncchd.go.jp/en/hospital/about/section/child-safety/>`_ should remove Ryan Dawson's children so they can live in a safe environment because that guy is mentally unstable. He likes to brag that his oldest son is a good troll online. The Japanese government should act quickly before it is too late and Ryan's antisemitism becomes ingrained in his children's brains. Also, I won't be surprised if he beats his Korean wife.
+Japan's `Office for Child Safety Services <https://www.ncchd.go.jp/en/hospital/about/section/child-safety/>`_ should take Ryan Dawson's kids away so they can live in a safe environment because that guy is mentally unstable. He likes to brag that his oldest son is a good troll online. The Japanese government should act quickly before it is too late and Ryan's antisemitism becomes ingrained in his children's brains. Also, I won't be surprised if he beats his Korean wife.
 
 |
 
