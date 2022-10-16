@@ -151,6 +151,12 @@ NAFO
      <img src="https://pbs.twimg.com/media/FeiXUzzWAAA806F?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfI2HsPXEAEvZg2?format=jpg&name=small">
+   </p>
+
 Putin
 -----
 .. Putin meeting start
@@ -226,6 +232,12 @@ Putin
 
   <p align="center">
      <img src="https://pbs.twimg.com/media/Feiukc7WYAA68Wp?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+  <p align="center">
+     <img src="https://pbs.twimg.com/media/Fe8ZgcGX0AETwdV?format=jpg&name=small">
    </p>
 
 .. Putin small
