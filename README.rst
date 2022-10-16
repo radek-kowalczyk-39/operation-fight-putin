@@ -106,7 +106,13 @@ Terrorist Russian Forces
    <p align="center">
      <img src="https://psb4ukr.natocdn.net/2022/02/EPmLWt-W4AAby0e.jpg">
    </p>
-   
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfMV-0XWQAIaC3L?format=jpg&name=small">
+   </p>
+
 .. raw:: html
 
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Russian infantry allegedly attempting to cross Dnipro river, 09/2022 colorized. <a href="https://t.co/lX5RtJo8If">pic.twitter.com/lX5RtJo8If</a></p>&mdash; Special Kherson Cat 🐈🇺🇦 (@bayraktar_1love) <a href="https://twitter.com/bayraktar_1love/status/1575819932901658624?ref_src=twsrc%5Etfw">September 30, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
@@ -150,12 +156,6 @@ NAFO
 .. raw:: html
 
    <p align="center">
-     <img src="https://pbs.twimg.com/media/FekEK6LXgAAJbul?format=jpg&name=small">
-   </p>
-
-.. raw:: html
-
-   <p align="center">
      <img src="https://pbs.twimg.com/media/FeiXUzzWAAA806F?format=jpg&name=small">
    </p>
 
@@ -163,6 +163,12 @@ NAFO
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FfI2HsPXEAEvZg2?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FekEK6LXgAAJbul?format=jpg&name=small">
    </p>
 
 Putin
@@ -373,6 +379,12 @@ Russian Forces
      <img src="https://pbs.twimg.com/media/Fd_0RbpXwAA9lXh?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfG7anKX0AEvAZw?format=jpg&name=small">
+   </p>
+
 Russia
 ------
 .. raw:: html
@@ -397,6 +409,18 @@ Russia
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FfIwqVXXoAARXbt?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfMG1HHXkAAMBDI?format=png&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfME3SeXwAEBZpI?format=jpg&name=small">
    </p>
 
 Vatnik propaganda
