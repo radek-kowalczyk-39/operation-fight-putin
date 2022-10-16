@@ -308,6 +308,12 @@ Russian Forces
      <img src="https://pbs.twimg.com/media/Fd_1k_WXgAAF9X1?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfMV1ntWYAAXnyc?format=jpg&name=900x900">
+   </p>
+
 .. garbage start
 
 .. raw:: html
