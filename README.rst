@@ -113,6 +113,14 @@ Terrorist Russian Forces
 
 Memes
 =====
+NATO
+----
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/Fe7yzidWQAIBgNJ?format=png&name=small">
+   </p>
+   
 NAFO
 ----
 .. raw:: html
@@ -240,6 +248,12 @@ Putin
      <img src="https://pbs.twimg.com/media/Fe8ZgcGX0AETwdV?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfH3pOOXkAY3iF4?format=jpg&name=small">
+   </p>
+
 .. Putin small
 .. raw:: html
    <p align="center">
@@ -299,7 +313,25 @@ Russian Forces
 .. raw:: html
 
    <p align="center">
+     <img src="https://pbs.twimg.com/media/FfHDoJ6XoAIVOEc?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
      <img src="https://pbs.twimg.com/media/FeACfexXwAMENz5?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfG5QB9XoAAOmtX?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfHt4A4X0AEowMQ?format=jpg&name=small">
    </p>
 
 .. garbage end
@@ -359,6 +391,12 @@ Russia
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FePC_9EWIAEHgoy?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfIwqVXXoAARXbt?format=jpg&name=small">
    </p>
 
 Vatnik propaganda
