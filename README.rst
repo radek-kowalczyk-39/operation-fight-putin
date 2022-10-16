@@ -27,6 +27,19 @@ Recommended sites
 
 News
 ====
+2022-10-15: 11 Russian soldiers killed, 15 injured at training ground in Belgorod
+---------------------------------------------------------------------------------
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">⚡️ Russian media: 11 Russian soldiers killed, 15 injured at training ground in Belgorod.<br><br>&quot;Terrorists&quot; opened fire at Russian &quot;volunteers&quot; preparing to fight against Ukraine at a training ground in Belgorod, Russian state-controlled RIA Novosti reported, citing the country&#39;s DM.</p>&mdash; The Kyiv Independent (@KyivIndependent) <a href="https://twitter.com/KyivIndependent/status/1581379484418441216?ref_src=twsrc%5Etfw">October 15, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+|
+
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">RIA Novosti wrote that it was &quot;a terrorist act&quot; committed by two citizens of one of the post-Soviet states.</p>&mdash; The Kyiv Independent (@KyivIndependent) <a href="https://twitter.com/KyivIndependent/status/1581379486418755584?ref_src=twsrc%5Etfw">October 15, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+
 2022-10-08: Key bridge linking Crimea and Russia on fire after major explosion
 ------------------------------------------------------------------------------
 .. raw:: html
