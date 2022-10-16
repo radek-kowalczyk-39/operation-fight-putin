@@ -39,6 +39,9 @@ News
 
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">RIA Novosti wrote that it was &quot;a terrorist act&quot; committed by two citizens of one of the post-Soviet states.</p>&mdash; The Kyiv Independent (@KyivIndependent) <a href="https://twitter.com/KyivIndependent/status/1581379486418755584?ref_src=twsrc%5Etfw">October 15, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
 
+|
+
+**Photos from the attack @** `t.me/ghostnewsx/1319 <https://t.me/ghostnewsx/1319>`_
 
 2022-10-08: Key bridge linking Crimea and Russia on fire after major explosion
 ------------------------------------------------------------------------------
