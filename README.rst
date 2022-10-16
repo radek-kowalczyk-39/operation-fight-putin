@@ -112,6 +112,13 @@ Terrorist Russian Forces
    <p align="center">
      <img src="https://pbs.twimg.com/media/FfMV-0XWQAIaC3L?format=jpg&name=small">
    </p>
+|
+
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Kazakhs (and Russians) in Russia attacked a mobik who said something bad about Kazakhs. This appears to be happening somewhere in Volgograd Oblast. The ethnic Kazakhs here are likely to have Russian citizenship and are part of the mobilisation efforts. <a href="https://t.co/kr7fJ148e1">pic.twitter.com/kr7fJ148e1</a></p>&mdash; Dmitri (@wartranslated) <a href="https://twitter.com/wartranslated/status/1581611523138408449?ref_src=twsrc%5Etfw">October 16, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+|
 
 .. raw:: html
 
