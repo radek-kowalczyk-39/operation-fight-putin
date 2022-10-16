@@ -387,12 +387,7 @@ Russian Forces
 
 Russia
 ------
-.. raw:: html
-
-   <p align="center">
-     <img src="https://pbs.twimg.com/media/FejgavAWAAAaUS8?format=jpg&name=small">
-   </p>
-   
+.. flag start
 .. raw:: html
 
    <p align="center">
@@ -408,6 +403,20 @@ Russia
 .. raw:: html
 
    <p align="center">
+     <img src="https://pbs.twimg.com/media/FfME3SeXwAEBZpI?format=jpg&name=small">
+   </p>
+
+.. flag end
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FejgavAWAAAaUS8?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
      <img src="https://pbs.twimg.com/media/FfIwqVXXoAARXbt?format=jpg&name=small">
    </p>
 
@@ -415,12 +424,6 @@ Russia
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FfMG1HHXkAAMBDI?format=png&name=small">
-   </p>
-
-.. raw:: html
-
-   <p align="center">
-     <img src="https://pbs.twimg.com/media/FfME3SeXwAEBZpI?format=jpg&name=small">
    </p>
 
 Vatnik propaganda
