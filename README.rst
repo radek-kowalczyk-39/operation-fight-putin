@@ -171,6 +171,12 @@ NAFO
      <img src="https://pbs.twimg.com/media/FekEK6LXgAAJbul?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfNYdtrX0AMsrlP?format=jpg&name=small">
+   </p>
+
 Putin
 -----
 .. Putin meeting start
