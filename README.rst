@@ -92,7 +92,13 @@ Brave Ukrainian Forces
    <p align="center">
      <img src="https://pbs.twimg.com/media/Fd__QtGXgAIy4rN?format=jpg&name=900x900">
    </p>
-   
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfMu1uOWAAE_Md2?format=jpg&name=small">
+   </p>
+
 Terrorist Russian Forces
 ========================
 .. raw:: html
