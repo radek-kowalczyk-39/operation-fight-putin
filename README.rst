@@ -27,6 +27,30 @@ Recommended sites
 
 News
 ====
+2022-10-17: Russian fighter jet crashes into apartment building in Yeysk, Russia
+---------------------------------------------------------------------------------
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">❗️ In <a href="https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw">#Russia</a>, a Su-34 military aircraft crashed on a residential building in <a href="https://twitter.com/hashtag/Yeysk?src=hash&amp;ref_src=twsrc%5Etfw">#Yeysk</a> (<a href="https://twitter.com/hashtag/Krasnodar?src=hash&amp;ref_src=twsrc%5Etfw">#Krasnodar</a> region).<br><br>The pilot managed to eject. His parachute is clearly visible in the first picture.<br><br>At least 15 apartments were damaged, according to Ministry of Emergency Situations. <a href="https://t.co/v82QUo6KhA">pic.twitter.com/v82QUo6KhA</a></p>&mdash; NEXTA (@nexta_tv) <a href="https://twitter.com/nexta_tv/status/1582055776415145988?ref_src=twsrc%5Etfw">October 17, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+|
+
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Explosions can be heard after the crash.<br><br>Apparently, the ammunition detonates. <a href="https://t.co/srIZIN7oCx">pic.twitter.com/srIZIN7oCx</a></p>&mdash; NEXTA (@nexta_tv) <a href="https://twitter.com/nexta_tv/status/1582056105458294793?ref_src=twsrc%5Etfw">October 17, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+|
+
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">Another video is circulating on social networks, which, presumably, shows the moment the plane crashed on a residential building in <a href="https://twitter.com/hashtag/Yeysk?src=hash&amp;ref_src=twsrc%5Etfw">#Yeysk</a>. <a href="https://t.co/JX2spG6DTm">pic.twitter.com/JX2spG6DTm</a></p>&mdash; NEXTA (@nexta_tv) <a href="https://twitter.com/nexta_tv/status/1582059945742082048?ref_src=twsrc%5Etfw">October 17, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+|
+
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">According to Russian Emergency Ministry, the number of victims in <a href="https://twitter.com/hashtag/Yeysk?src=hash&amp;ref_src=twsrc%5Etfw">#Yeysk</a> has increased to 19, four in serious condition.<br><br>Eight of them have severe burns and carbon monoxide poisoning.<br><br>At least three deaths are also reported. <a href="https://t.co/Rnf2NKAkoG">pic.twitter.com/Rnf2NKAkoG</a></p>&mdash; NEXTA (@nexta_tv) <a href="https://twitter.com/nexta_tv/status/1582073419650109441?ref_src=twsrc%5Etfw">October 17, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
 2022-10-15: 11 Russian soldiers killed, 15 injured at training ground in Belgorod
 ---------------------------------------------------------------------------------
 .. raw:: html
