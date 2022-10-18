@@ -397,8 +397,8 @@ Russian Forces
 
 .. garbage end
 
+.. what they are dying for
 .. raw:: html
-
    <p align="center">
      <img src="https://pbs.twimg.com/media/FfOSF5pVIAEKZI_?format=jpg&name=small">
    </p>
