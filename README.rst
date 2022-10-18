@@ -397,6 +397,12 @@ Russian Forces
 
 .. garbage end
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfOSF5pVIAEKZI_?format=jpg&name=small">
+   </p>
+
 .. coffin
 .. raw:: html
 
@@ -438,12 +444,6 @@ Russian Forces
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FfOHC7NaAAEkiro?format=jpg&name=small">
-   </p>
-
-.. raw:: html
-
-   <p align="center">
-     <img src="https://pbs.twimg.com/media/FfOSF5pVIAEKZI_?format=jpg&name=small">
    </p>
 
 .. raw:: html
