@@ -433,12 +433,6 @@ Russian Forces
    <p align="center">
      <img src="https://pbs.twimg.com/media/Fd_0RbpXwAA9lXh?format=jpg&name=small">
    </p>
-
-.. raw:: html
-
-   <p align="center">
-     <img src="https://pbs.twimg.com/media/FfG7anKX0AEvAZw?format=jpg&name=small">
-   </p>
    
 .. raw:: html
 
@@ -456,6 +450,12 @@ Russian Forces
 
    <p align="center">
      <img src="https://pbs.twimg.com/media/FfS8D2NWQAAVH75?format=jpg&name=medium">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfG7anKX0AEvAZw?format=jpg&name=small">
    </p>
 
 Russia
