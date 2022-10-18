@@ -439,6 +439,24 @@ Russian Forces
    <p align="center">
      <img src="https://pbs.twimg.com/media/FfG7anKX0AEvAZw?format=jpg&name=small">
    </p>
+   
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfOHC7NaAAEkiro?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfOSF5pVIAEKZI_?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfS8D2NWQAAVH75?format=jpg&name=medium">
+   </p>
 
 Russia
 ------
@@ -461,7 +479,25 @@ Russia
      <img src="https://pbs.twimg.com/media/FfME3SeXwAEBZpI?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfLyhrCXgAkJ6eC?format=jpg&name=small">
+   </p>
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfOK37WXkAImmiI?format=jpg&name=large">
+   </p>
+
 .. flag end
+
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfOK37bWIAQvRor?format=jpg&name=medium">
+   </p>
 
 .. raw:: html
 
