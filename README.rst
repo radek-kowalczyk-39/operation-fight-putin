@@ -303,6 +303,12 @@ Putin
      <img src="https://pbs.twimg.com/media/FfH3pOOXkAY3iF4?format=jpg&name=small">
    </p>
 
+.. raw:: html
+
+   <p align="center">
+     <img src="https://pbs.twimg.com/media/FfWoIn0XkAI8qi7?format=jpg&name=900x900">
+   </p>
+
 .. Putin small
 .. raw:: html
    <p align="center">
