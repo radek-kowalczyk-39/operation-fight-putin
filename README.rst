@@ -43,6 +43,12 @@ News
 
 .. raw:: html
 
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">❗️In the <a href="https://twitter.com/hashtag/Russian?src=hash&amp;ref_src=twsrc%5Etfw">#Russian</a> city of <a href="https://twitter.com/hashtag/Irkutsk?src=hash&amp;ref_src=twsrc%5Etfw">#Irkutsk</a>, a military plane crashed on a residential building<br><br>According to the Russian Emergencies Ministry, it was a Su-30 that crashed during a test flight.<br><br>The area of ​​the fire reached 200 square meters. <br><br>Both pilots died in the crash. <a href="https://t.co/Jgra5ajckV">pic.twitter.com/Jgra5ajckV</a></p>&mdash; NEXTA (@nexta_tv) <a href="https://twitter.com/nexta_tv/status/1584141070912614402?ref_src=twsrc%5Etfw">October 23, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+|
+
+.. raw:: html
+
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">⚡️Military jet crashes in Russia, second within week.<br><br>Russia’s regional emergency service said a Su-30 fighter aircraft crashed in Irkutsk, Russia. The plane hit a residential building.<br><br>On Oct. 17, a Russian military aircraft crashed into a residential building in Yeysk. <a href="https://t.co/kuY2rs8Enb">pic.twitter.com/kuY2rs8Enb</a></p>&mdash; The Kyiv Independent (@KyivIndependent) <a href="https://twitter.com/KyivIndependent/status/1584162082471432193?ref_src=twsrc%5Etfw">October 23, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
 
 2022-10-17: Russian fighter jet crashes into apartment building in Yeysk, Russia
