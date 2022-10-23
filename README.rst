@@ -27,8 +27,26 @@ Recommended sites
 
 News
 ====
+2022-10-23: Russian military jet crashes in Russia, second within week
+----------------------------------------------------------------------
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">⚡️Update: Two pilots killed in fighter jet crash in Russia’s Irkutsk. <br><br>The information was provided by Russia&#39;s Emergency Situations Ministry.<a href="https://t.co/zFvryoHe2z">https://t.co/zFvryoHe2z</a></p>&mdash; The Kyiv Independent (@KyivIndependent) <a href="https://twitter.com/KyivIndependent/status/1584163057957470208?ref_src=twsrc%5Etfw">October 23, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+|
+
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">The Russian Sukhoi Su-30 crashed into a residential building, Irkutsk Oblast Governor Igor Kobzev said, adding that there is no information on casualties among civilians so far.</p>&mdash; The Kyiv Independent (@KyivIndependent) <a href="https://twitter.com/KyivIndependent/status/1584163064022466561?ref_src=twsrc%5Etfw">October 23, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
+|
+
+.. raw:: html
+
+   <blockquote class="twitter-tweet"><p lang="en" dir="ltr">⚡️Military jet crashes in Russia, second within week.<br><br>Russia’s regional emergency service said a Su-30 fighter aircraft crashed in Irkutsk, Russia. The plane hit a residential building.<br><br>On Oct. 17, a Russian military aircraft crashed into a residential building in Yeysk. <a href="https://t.co/kuY2rs8Enb">pic.twitter.com/kuY2rs8Enb</a></p>&mdash; The Kyiv Independent (@KyivIndependent) <a href="https://twitter.com/KyivIndependent/status/1584162082471432193?ref_src=twsrc%5Etfw">October 23, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+
 2022-10-17: Russian fighter jet crashes into apartment building in Yeysk, Russia
----------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
 .. raw:: html
 
    <blockquote class="twitter-tweet"><p lang="en" dir="ltr">The death toll in the crash of the Su-34 on a residential building in <a href="https://twitter.com/hashtag/Yeysk?src=hash&amp;ref_src=twsrc%5Etfw">#Yeysk</a> has increased to 14 people. <a href="https://t.co/BfoMsEYxaI">pic.twitter.com/BfoMsEYxaI</a></p>&mdash; NEXTA (@nexta_tv) <a href="https://twitter.com/nexta_tv/status/1582355519318392833?ref_src=twsrc%5Etfw">October 18, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
